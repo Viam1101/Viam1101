@@ -1,1 +1,1 @@
-no attention
+stop skidding idgaf about fame.
